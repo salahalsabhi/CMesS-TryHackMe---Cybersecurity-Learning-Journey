@@ -848,7 +848,7 @@ Do not use these techniques against systems that you do not own or do not have e
 **Salah Al Sabhi**
 ---
 
-LinkedIn: []
+LinkedIn: [https://www.linkedin.com/feed/update/urn:li:activity:7495343099188260864/]
 
 X: [https://x.com/charisma1385/status/2089569856387518860] 
 
