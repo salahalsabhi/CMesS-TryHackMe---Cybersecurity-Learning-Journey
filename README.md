@@ -850,7 +850,7 @@ Do not use these techniques against systems that you do not own or do not have e
 
 LinkedIn: []
 
-X: [] 
+X: [https://x.com/charisma1385/status/2089569856387518860] 
 
 ---
 
